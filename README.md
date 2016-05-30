@@ -5,5 +5,3 @@ Answer others' question.
 Many many things.  
 Open the mind in this website.  
 Enjoy the life.  
-The web actually havn't done yet.  
-I will use sometime to do it.   
